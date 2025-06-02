@@ -1,1 +1,5 @@
-![Uploading 藝科8組仙鶴博物館彙報_01.jpg…]()
+![藝科8組仙鶴博物館彙報_11](https://github.com/user-attachments/assets/d781bbcb-4a13-443c-8694-f13311158d4d)![Uploading 藝科8組仙鶴博物館彙報_01.jpg…]()
+![藝科8組仙鶴博物館彙報_02](https://github.com/user-attachments/assets/64c5dae7-1c44-41e5-bfe9-9dc070ca0d80)
+![藝科8組仙鶴博物館彙報_03](https://github.com/user-attachments/assets/60ed726b-5f05-48b5-bb59-33df8f50308b)
+![藝科8組仙鶴博物館彙報_04](https://github.com/user-attachments/assets/3696aea9-ecd7-4978-82a0-f547aeeab0eb)
+![藝科8組仙鶴博物館彙報_05](https://github.com/user-attachments/assets/3cd13164-d7b5-42c7-beac-b45ca19124a6)
